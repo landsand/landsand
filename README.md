@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @landsand
+- 👋 Hi, I’m @la
 - 👀 I’m interested in search
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on univers
